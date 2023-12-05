@@ -1,6 +1,7 @@
 # Portfolio Journalism TH
 
 WRITTEN STORIES:
+
 Wie stopt de denigrerende barbaarse cancel culture? 
 Bladzijde 2.
 
