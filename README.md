@@ -20,6 +20,14 @@ Bladzijde 8.
 Ongeschreven regels van Nederlandse techno cultuur “Ga niet hee-hoo schreeuwen… bewaar dat voor het Leidseplein” 
 Bladzijde 9 & 10.
 
+AUDIO STORIES:
+
+Melvin Lee - Musical Genius.mp3
+
+Cheeky Velvet Music.mp3
+
+2018 2019 podcast aflevering copy.mp3
+
 ESSAY'S:
 
 Decarbonisation 
