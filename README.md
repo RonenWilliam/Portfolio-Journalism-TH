@@ -19,3 +19,14 @@ Bladzijde 8.
 
 Ongeschreven regels van Nederlandse techno cultuur “Ga niet hee-hoo schreeuwen… bewaar dat voor het Leidseplein” 
 Bladzijde 9 & 10.
+
+ESSAY'S:
+
+Decarbonisation 
+Bladzijde 2 t/m 7.
+
+Politics & Rhetoric
+Bladzijde 8 t/m 13.
+
+Decolonisation
+Bladzijde 14 t/m 18.
